@@ -1,0 +1,1 @@
+<shu yerga Python kodni joylashtiring>
